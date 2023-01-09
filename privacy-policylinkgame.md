@@ -2,8 +2,8 @@ Privacy Policy
 ----------------
 
 ### Introduction  
-Our privacy policy will help you understand what information we collect at status saver for whatsapp, how status saver for whatsapp uses it, and what choices you have.
-status saver for whatsapp built the status saver for whatsapp app as a free app. This SERVICE is provided by status saver for whatsapp at no cost and is intended for use as is.
+Our privacy policy will help you understand what information we collect at Link To Dot - Dot puzzle game, how Link To Dot - Dot puzzle game uses it, and what choices you have.
+Link To Dot - Dot puzzle game built the Link To Dot - Dot puzzle game app as a free app. This SERVICE is provided by Link To Dot - Dot puzzle game at no cost and is intended for use as is.
 If you choose to use our Service, then you agree to the collection and use of information in  relation with this policy. The Personal Information that we collect are used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.  
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible in our website, unless otherwise  defined in this Privacy Policy.
 
